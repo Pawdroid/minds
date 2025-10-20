@@ -59,7 +59,7 @@ Qoder智能体：
 
 ## 🎁 专属智能体体验通道（限时开放）
 
-### 🔗 **[Qoder](https://qoder.com/referral?referral_code=nRpu5Ulk7JgdZXMzug0QtinyX4LfKuQS)**
+### 🔗 **[Qoder点击去注册](https://qoder.com/referral?referral_code=nRpu5Ulk7JgdZXMzug0QtinyX4LfKuQS)**
 
 ### 🎯 专属通道特权包
 
